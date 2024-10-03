@@ -1,2 +1,1 @@
-# noobweeltpsl.github.io
-NGMS UG
+# NGMS Unblocked Games
